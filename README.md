@@ -1,4 +1,4 @@
-👋 Hey there, I'm Abhinav Aryan—a budding IT enthusiast with a knack for programming, tech, and gadgets.
+👋 Hey there, I'm Abhinav Aryan — an IT enthusiast with a knack for programming, tech, and gadgets.
 
 🌱 Currently pursuing my IT degree at VIT, Vellore.
 
